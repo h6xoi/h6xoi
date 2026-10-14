@@ -89,8 +89,8 @@ I have BPD, hypersexuality, narcissistic traits, depression, and anger issues, s
   <img src="https://cdn.discordapp.com/attachments/1530952501858144317/1559870108476645406/Untitled161.png?ex=6ad0a5be&is=6acf543e&hm=41ef715a0b6f828f0acd549cbed2a593ba927ba7b47b578dbcbbe1f17851312a&animated=true" width="480" alt="My picture">
 </p>
 
-@9berri, @loosehyena, @77crescentmoon, @L0ztStarz, @arachnidace</p>
-@AndroidSentByCyberLife, @dantestheonefr, @vintagecasino, @heartrott
+<a href="https://github.com/9berri">@9berri</a> ,<a href="https://github.com/loosehyena">@loosehyena</a> ,<a href="https://github.com/77crescentmoon">@77crescentmoon</a> ,<a href="https://github.com/L0ztStarz">@L0ztStarz</a> ,<a href="https://github.com/USERNAME">@arachnidace</a> </p>
+<a href="https://github.com/AndroidSentByCyberLife">@AndroidSentByCyberLife</a> ,<a href="https://github.com/dantestheonefr">@dantestheonefr</a> ,<a href="https://github.com/vintagecasino">@vintagecasino</a> ,<a href="https://github.com/heartrott">@heartrott</a> 
 
 <p align="center">
   <img src="https://cdn.discordapp.com/attachments/1530952501858144317/1559870153926115489/Untitled162.png?ex=6ad0a5c9&is=6acf5449&hm=437663f715d398bd1d6622cde0b46e786f8496fdb137cb163b488e32b22db567&animated=true=" width="480" alt="My picture">
