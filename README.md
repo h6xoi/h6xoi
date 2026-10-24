@@ -24,7 +24,7 @@
 <details>
 <summary>about</summary>
 <p align="center">
-  <img src="https://cdn.discordapp.com/attachments/1530952501858144317/1559870108476645406/Untitled161.png?ex=6ad0a5be&is=6acf543e&hm=41ef715a0b6f828f0acd549cbed2a593ba927ba7b47b578dbcbbe1f17851312a&animated=true" width="480" alt="My picture">
+  <img src="https://i.postimg.cc/j2jrNLKQ/Untitled161.png" width="480" alt="My picture">
 </p>
 
 Yo! I'm 6ix. You can call me 6, 6ix, or Six lwk anything works for me.</p>
