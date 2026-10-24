@@ -8,9 +8,9 @@
 </div>
 
 <div align="center">
-  <img src="https://media.discordapp.net/attachments/1530952501858144317/1559862499476639795/1pbhmm5.png?ex=6ad09ea8&is=6acf4d28&hm=f6c83f0be1eca259a65fb1bd9eb9bab3e733dec34b8eb4fda8f4e1f1d4ea932f&animated=true" width="50" alt="Image 1">
-  <img src="https://media.discordapp.net/attachments/1530952501858144317/1559862499132837888/kkhv6zq.png?ex=6ad09ea8&is=6acf4d28&hm=876bda1fa0fb9808e97562ecb0ee76e5c6ecbb7b649bcab7514a7a23d5778884&animated=true" width="50" alt="Image 2">
-  <img src="https://media.discordapp.net/attachments/1530952501858144317/1559862498738577452/fsz3s6x.png?ex=6ad09ea8&is=6acf4d28&hm=6acbd22a6dfa3fe4a48356b38709e8ac1a0a2ac8ccef36e729df26b7fddd3a7a&animated=true" width="50" alt="Image 3">
+  <img src="https://i.postimg.cc/JhK6XKh6/1pbhmm5.png" width="50" alt="Image 1">
+  <img src="https://i.postimg.cc/8cftqSbG/kkhv6zq.png" width="50" alt="Image 2">
+  <img src="https://i.postimg.cc/3ryhK0Sk/fsz3s6x.png" width="50" alt="Image 3">
 
 <p align="center">
   <img src="https://i.postimg.cc/ZYr8xRp5/image-2024-05-23-230252175.png" width="500" alt="My picture">
@@ -32,7 +32,7 @@ I am an adult, so please interact accordingly if you're a minor.</p>
 I am owner of X-BØTS ! I am also Staffing in AG:C : )</p>
 I am a digital artist! I work with both human and furry art styles!</p>
 <p align="center">
-  <img src="https://cdn.discordapp.com/attachments/1530952501858144317/1559870153926115489/Untitled162.png?ex=6ad0a5c9&is=6acf5449&hm=437663f715d398bd1d6622cde0b46e786f8496fdb137cb163b488e32b22db567&animated=true=" width="480" alt="My picture">
+  <img src="https://i.postimg.cc/9f2KZrYW/Untitled162.png" width="480" alt="My picture">
 </p>
 
 </details>
@@ -47,7 +47,7 @@ I am a digital artist! I work with both human and furry art styles!</p>
 <details>
 <summary>boundaries</summary>
 <p align="center">
-  <img src="https://cdn.discordapp.com/attachments/1530952501858144317/1559870108476645406/Untitled161.png?ex=6ad0a5be&is=6acf543e&hm=41ef715a0b6f828f0acd549cbed2a593ba927ba7b47b578dbcbbe1f17851312a&animated=true" width="480" alt="My picture">
+  <img src="https://i.postimg.cc/j2jrNLKQ/Untitled161.png" width="480" alt="My picture">
 </p>
 
 I prefer being called Six or 6ix. Only my friends may use nicknames for me, so please avoid giving me any yourself.</br>
@@ -71,7 +71,7 @@ If you catch me in uniform (AG:C, PAW or SANGŌ), please avoid interacting with 
 I have BPD, hypersexuality, narcissistic traits, depression, and anger issues, so please interact with caution.
 
 <p align="center">
-  <img src="https://cdn.discordapp.com/attachments/1530952501858144317/1559870153926115489/Untitled162.png?ex=6ad0a5c9&is=6acf5449&hm=437663f715d398bd1d6622cde0b46e786f8496fdb137cb163b488e32b22db567&animated=true=" width="480" alt="My picture">
+  <img src="https://i.postimg.cc/9f2KZrYW/Untitled162.png" width="480" alt="My picture">
 </p>
 
 </details>
@@ -86,14 +86,14 @@ I have BPD, hypersexuality, narcissistic traits, depression, and anger issues, s
 <details>
 <summary>coolest people</summary>
 <p align="center">
-  <img src="https://cdn.discordapp.com/attachments/1530952501858144317/1559870108476645406/Untitled161.png?ex=6ad0a5be&is=6acf543e&hm=41ef715a0b6f828f0acd549cbed2a593ba927ba7b47b578dbcbbe1f17851312a&animated=true" width="480" alt="My picture">
+  <img src="https://i.postimg.cc/j2jrNLKQ/Untitled161.png" width="480" alt="My picture">
 </p>
 
 <a href="https://github.com/9berri">@9berri</a> ,<a href="https://github.com/loosehyena">@loosehyena</a> ,<a href="https://github.com/77crescentmoon">@77crescentmoon</a> ,<a href="https://github.com/L0ztStarz">@L0ztStarz</a> ,<a href="https://github.com/USERNAME">@arachnidace</a> </p>
 <a href="https://github.com/AndroidSentByCyberLife">@AndroidSentByCyberLife</a> ,<a href="https://github.com/dantestheonefr">@dantestheonefr</a> ,<a href="https://github.com/vintagecasino">@vintagecasino</a> ,<a href="https://github.com/heartrott">@heartrott</a> 
 
 <p align="center">
-  <img src="https://cdn.discordapp.com/attachments/1530952501858144317/1559870153926115489/Untitled162.png?ex=6ad0a5c9&is=6acf5449&hm=437663f715d398bd1d6622cde0b46e786f8496fdb137cb163b488e32b22db567&animated=true=" width="480" alt="My picture">
+  <img src="https://i.postimg.cc/9f2KZrYW/Untitled162.png" width="480" alt="My picture">
 </p>
 
 </details>
