@@ -29,7 +29,7 @@
 
 Yo! I'm 6ix. You can call me 6, 6ix, or Six lwk anything works for me.</p>
 I am an adult, so please interact accordingly if you're a minor.</p>
-I am owner of X-BØTS ! I am also Staffing in AG:C : )</p>
+I am owner of X-BØTS ! I am also Staffing in AG:C and PAW : )</p>
 I am a digital artist! I work with both human and furry art styles!</p>
 <p align="center">
   <img src="https://i.postimg.cc/9f2KZrYW/Untitled162.png" width="480" alt="My picture">
