@@ -90,7 +90,7 @@ I have BPD, hypersexuality, narcissistic traits, depression, and anger issues, s
 </p>
 
 <a href="https://github.com/9berri">@9berri</a> ,<a href="https://github.com/loosehyena">@loosehyena</a> ,<a href="https://github.com/77crescentmoon">@77crescentmoon</a> ,<a href="https://github.com/USERNAME">@arachnidace</a> </p>
-<a href="https://github.com/AndroidSentByCyberLife">@AndroidSentByCyberLife</a> ,<a href="https://github.com/dantestheonefr">@dantestheonefr</a> ,<a href="https://github.com/vintagecasino">@vintagecasino</a> ,<a href="https://github.com/heartrott">@heartrott</a> 
+<a href="https://github.com/AndroidSentByCyberLife">@AndroidSentByCyberLife</a> ,<a href="https://github.com/dantestheonefr">@dantestheonefr</a> ,<a href="https://github.com/vintagecasino">@vintagecasino</a> ,<a href="https://github.com/heartrott">@heartrott</a>, <a href="https://github.com/snegvoy">@snegvoy</a> 
 
 <p align="center">
   <img src="https://i.postimg.cc/9f2KZrYW/Untitled162.png" width="480" alt="My picture">
