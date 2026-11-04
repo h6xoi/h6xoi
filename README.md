@@ -1,3 +1,6 @@
+<div align="center"> 
+<a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fh6xoi"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fh6xoi&label=bats&labelColor=%232e292f&countColor=%23778d59&style=plastic&labelStyle=upper" /></a>
+
 <div align="center">
   <img src="https://i.postimg.cc/5t7cJf8Q/Untitled160-20261014122556.png" width="250" alt="6ix">
 </div>
