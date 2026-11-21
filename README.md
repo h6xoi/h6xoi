@@ -65,7 +65,7 @@ Feel free to whisper me if you need anything, or simply leave a message in my At
 Do not make suggestive jokes towards me if you're not 18+ same goes with petnames.</p>
 I’m straightforward and an open-book kind of person. I block or hide freely if I feel uncomfortable, please don’t take it personally.</p>
 I tend to speak dryly and rarely speaking excited.</p>
-If you’re unsure about my tone, feel free to ask.</p>
+If you’re unsure about my tone, feel free to ask!! as I tend to be very...sarcastic.</p>
 If you catch me in uniform (AG:C or PAW), please avoid interacting with me publicly, or contact me through whispers instead.</br>
   I am on duty, so my attention will be focused on the event I'm attending, I may not respond right away.</p>
   Avoid trying to contact me if you're a former friend or have been hidden/blocked by me.</br>
